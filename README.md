@@ -1,0 +1,1 @@
+# seo-pro-only-parent-category-in-product-url
